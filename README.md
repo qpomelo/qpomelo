@@ -1,4 +1,4 @@
-Independent app developer / 18 y.o. / Sorry for bad English.
+Student / Independent app developer / 18 y.o. / Sorry for bad English, but I'm still learning English.
 
 My apps: [Pigeon - SNS Client](https://pigeon.qpomelo.app) (Launching Fall 2020)
 
